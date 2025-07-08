@@ -1,0 +1,1 @@
+# Clockwie-spial-portion-of-nxn-matrix-form
